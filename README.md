@@ -1,4 +1,4 @@
-Name: RAVI PANDAY 
+Name: RAVI PANDAY
 Branch: IT-C
 Registration Number: [25102803]
 Mobile Number (WhatsApp): 7986101500
