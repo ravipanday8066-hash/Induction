@@ -1,8 +1,8 @@
-Name: RAVI PANDAY
-Branch: IT-C
-Registration Number: [25102803]
-Mobile Number (WhatsApp): 7986101500
-Email: ravipanday8066@gmail.com
+**NAME:** Ravi Pandey 
+**BRANCH:**ITC 
+**REGISTRATION NUMBER:** [25102803]
+**Mobile Number:** 7986101500
+**Email Id:** ravipanday8066@gmail.com
 # Day 1 (30 July 2025)
 
 The very first day of college felt less like an entry into academics and more like a soulful initiation into a community rooted in faith, values, and excellence.
