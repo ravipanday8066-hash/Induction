@@ -1,10 +1,10 @@
-**NAME:** Ravi Pandey
+**NAME:**   Ravi Pandey
  
-**BRANCH**ITC
+**BRANCH:** ITC
 
 **REGISTRATION NUMBER:** [25102803]
 
-**Mobile Number:** 7986101500
+**Mobile Number:(what's app)** 7986101500
 
 **Email Id:** ravipanday8066@gmail.com
 
